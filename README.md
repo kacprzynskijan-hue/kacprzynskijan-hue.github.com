@@ -1,1 +1,0 @@
-# ayugarden.github.io
